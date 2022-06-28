@@ -25,12 +25,13 @@
 	- DC 21 - pomiędzy stertami śniegu widać zaschnięte ślady krwi - stare
 	- DC 15 - detale kapliczki (śnieg na niej)
 	- DC 25 - wilkołak przyczajony w krzewach przysypanych śniegiem
-![[Pasted image 20220628222530.png]]
+![[priest_werewolf.png]]
 ![[battleforce-angel.png]]
-![[Pasted image 20220628225427.png]]
-![[Pasted image 20220628231136.png]]
-![[Pasted image 20220628231153.png]]
+![[masked_killer.png]]
+![[spy.png]]
+![[thug.png]]
+![[guard_captain.png]]
 
 Itemy:
-![[Pasted image 20220628230328.png]]
-![[Pasted image 20220628230444.png]]
+![[gloves_and_goggles.png]]
+![[potion_of_invisibility.png]]

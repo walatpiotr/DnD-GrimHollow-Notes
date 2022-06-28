@@ -1,9 +1,9 @@
-![[Pasted image 20220628222900.png]]
+![[cure_wound.png]]
 
-![[Pasted image 20220628223050.png]]
+![[guiding_bolt.png]]
 
-![[Pasted image 20220628223143.png]]
+![[lesser_restoration.png]]
 
-![[Pasted image 20220628223240.png]]
+![[spiritual_weapon.png]]
 
-![[Pasted image 20220628223614.png]]
+![[spirit_guardians.png]]
