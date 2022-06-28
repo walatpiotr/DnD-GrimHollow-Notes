@@ -1,0 +1,1 @@
+Zarówno [[Youla]] jak i [[Marogar]] są dłużnikami Syndykatu. Potrzebują się wypłacić więc ich dług będzie spłacony poprzez załatwienie sprawy [[Gang]]u oraz zbadanie [[Zagadka Morderstwa]]

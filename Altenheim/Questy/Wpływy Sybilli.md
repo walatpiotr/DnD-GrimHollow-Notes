@@ -1,0 +1,1 @@
+Wątek ten ma na celu ukazanie skali działań Sybilli oraz zaprezentowanie zorganizowania jej ludzi. Dodatkowo wsród ludzi służących Sybilli znajduje się meżczyzna odpowiedzialny pośrednio za śmierć rodziny [[Olhold]]

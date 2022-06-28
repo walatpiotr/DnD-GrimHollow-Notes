@@ -1,0 +1,1 @@
+Siostra Sybilli pochodzi z rodu, który zaatakował ziemie i dom rodzinny [[Hilris]]. Chciałaby ona porozmawiać z dziewczyną, która przyjechała do stolicy na Swaty do Cesarza. Rezyduje w domu gościnnym w [[Rezydencja Reinhart'ów w Altenheim]]

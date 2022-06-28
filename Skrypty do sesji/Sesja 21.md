@@ -1,0 +1,11 @@
+- podróż do terenu rodu Dassel'ów - 1,5 sztuki złota za osobę + 2 sztuki złota za wóz - problem z koboldem - zakaz przewożenia czegoś takiego... łapówka za 10gp.
+- **pogoda** - lekki śnieg z wiaterkiem lekkim
+- pierwsza noc - blink dog, prośba o ratunek - atak quicklingów
+- miejsce po portalu z wyrosniętymi kwiatami i zielonymi liśćmi
+- dalsza podróż - spotakanie jakiegoś kupca - proste oręża i zbroje a dodatkowo metale zwykłe i szlachetne,
+- dalsza podróż - napotkanie 3'ki wilkołaków - 1 zmutowany przez Bestię walczy z pozostałą dwójką, gracze mogę pomóc wilkołakom, którzy ewidentnie przegrywają,
+- po pokonaniu okazuje się że to 3ka braci, którzy zostali kiedyś pogryzieni przez bandę zabójców wilkołaków od tego czasu gdy zbliża się pełnia udają się do lasu do swojej kryjówki by nikogo nie skrzywdzić - słyszeli o kilku ofiarach przez ostatnie miesiące i oskarżenia że to sprawa wilkołaków, wiedzą że to mała banda bo ofiary są pojedyncze, czasem dwie osoby,
+- Ogniodzierżca z Meissen - daje odszkodowania z własnej kieszeni rodzinom ofiar, już dwie osoby jednak zostały spalone za morderstwo i próbę wyłudzenia pieniędzy (100 sztuk złota to duża suma)
+- dalsza podróż i mała wioska złożona głównie z kilku pól uprawnych, kowala, małej kapliczki, studni i tartaku ludzie zebrani zostali na palenie oszusta i mordercy
+- kapłan wystawia nagrodę za głowy wilkołaków na 1-2 dni przed pełnią i tuż po niej znosi nagrodę, jeszcze nikt nie wrócił z wykonanym zadaniem
+- *tak na prawdę kapłan tych którzy przyjmują zlecenie atakuje pod osłoną nocy i na nich się żywi by nie ranić mieszkańców, niestety raz nikt nie przyjął zlecenia i nie udało mu się opanować i ktoś ucierpiał*
